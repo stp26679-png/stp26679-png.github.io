@@ -1,1 +1,4 @@
-# stp26679-png.github.io
+Punyisa Chubking [Manao]
+No.18
+4/3
+STP
